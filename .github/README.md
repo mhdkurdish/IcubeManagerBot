@@ -8,7 +8,7 @@
   <img src="https://telegra.ph/file/90552395a5e96d0e7fab9.jpg">
 </p>
 
-_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ᴢᴇɴ ✘ ʀᴏʙᴏᴛ](https://t.me/zenXRobot)**_
+_**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ICUBE](https://t.me/zenXRobot)**_
 ━━━━━━━━━━━━━━━━━━━━
 
 <p align="center">
